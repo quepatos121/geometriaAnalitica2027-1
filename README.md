@@ -1,0 +1,1 @@
+# geometriaAnalitica2027-1
